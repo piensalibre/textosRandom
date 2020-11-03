@@ -1,0 +1,5 @@
+# haceTiempo,FuiLibre
+**Viendo el amanecer dentro de tus ojos**, deleitandome con el aroma de mis suenos, pensando en el atardecer de tus mejillas, recorriendo las costas de tus labios mientras descansa la luna sobre las estrellas, es entonces, **cuando la noche grita su final**, es cuando mas te busco, te busco y no te encuentro, te encuentro y no te sueno, te sueno y no te tengo, te tengo y no te merezco, **es entonces cuando me pierdo**...  
+Despues del mareo y confusion **me reencuentro en el sueno perdido**, veo a mi alrededor y algunas cosas me parecen familiares, solo pienso que puedo sentir los latidos de tu corazon destellando colores de esperanza invadidos por un suspiro de dolor, **mientras juego a ser el unico preso libre de tu amor**, en este momento solo puedo decirte adios, mientras te veo alejar por detras de los barrotes, **solo soy libre de decir: ¨Se libre mi libertad¨**.  
+**Y asi, hace tiempo fui libre**.  
+**Suerte, mientras la luna siga ahi, vida, mientras el verde de los arboles permanezca igual, muerte, cuando lo anterior se acaba y la luz del sol se apaga.**
