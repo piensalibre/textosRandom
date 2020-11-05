@@ -24,6 +24,16 @@ Atte: *El loco, Raziel, zick, piensa, piensalibre.*
 
 ## Listado de textos:
 * [aguitaPreciosa](aguitaPreciosa.md)
-
+* [azul](azul.md)
+* [elRecuerdoDeUnAmor](elRecuerdoDeUnAmor.md)
+* [esperanza](esperanza.md)
+* [haceTiempo,FuiLibre](haceTiempo,FuiLibre.md)
+* [hijasMias](hijasMias.md)
+* [luna](luna.md)
+* [luzDivinaSobreLaTierra](luzDivinaSobreLaTierra.md)
+* [muyLejos,ComoDebioSer](muyLejos,ComoDebioSer.md)
+* [sinAlas](sinAlas.md)
+* [unYoSinTi](unYoSinTi.md)
+* [vivirConElla,VivirSinTi](vivirConElla,VivirSinTi.md)
 
 ***
