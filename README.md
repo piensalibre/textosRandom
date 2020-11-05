@@ -18,4 +18,12 @@ Y si, se que poder teclear letras y unirlas para formar palabras no me hace buen
 
 **Me tiene sin cuidado, disfruto escribiendo.**
 
-Atte: *El loco, Raziel, zick, piensa, piensalibre.*
+Atte: *El loco, Raziel, zick, piensa, piensalibre.*  
+
+***
+
+## Listado de textos:
+* [aguitaPreciosa](aguitaPreciosa.md)
+
+
+***
